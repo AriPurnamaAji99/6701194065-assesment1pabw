@@ -1,2 +1,1 @@
-#Ari Purnama Aji
-#6701194065
+Ari Purnama Aji-6701194065
